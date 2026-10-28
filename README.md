@@ -1,2 +1,0 @@
-# Snok FromSomewhere
-
